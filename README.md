@@ -1,2 +1,0 @@
-# Elizabeth McDaniel's CV
-
